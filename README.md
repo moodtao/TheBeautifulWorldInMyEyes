@@ -13,6 +13,10 @@
   https://mp.weixin.qq.com/s/oKtOVyGsNPYSr_t8kJLJ-Q  
 ## 7 热词盘点｜2021年度热词，你Pick哪一个？  
   https://mp.weixin.qq.com/s/yOypDX2awu29zppUyKWeMg  
+## 8 “羽动青春” 趣味羽毛球赛
+  https://mp.weixin.qq.com/s/1jkTbLOqKEqjaPSxPXMbaw  
+## 9 “摆脱焦虑，快乐科研” 心理团辅活动
+  https://mp.weixin.qq.com/s/uIFRM4x065uSC1tizaxUUg  
 # 海报  
 ## 金牛报春，喜迎新年！  
   https://mp.weixin.qq.com/s/h0fUY5hvFs6zYzI_AxkOtw  
