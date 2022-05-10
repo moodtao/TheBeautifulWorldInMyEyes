@@ -18,6 +18,10 @@
 ## 9 每周一冷 | “你知道投资和投机的区别吗？”  
   https://mp.weixin.qq.com/s/oKtOVyGsNPYSr_t8kJLJ-Q  
 
+# 人像类文案
+## 1 优秀德育导师 | 地科学院任浩然：引航启智，守护成长  
+  https://mp.weixin.qq.com/s/DQ2H4jGU-noRAAUuxcXuIw 
+
 # 海报  
 ## 金牛报春，喜迎新年！  
   https://mp.weixin.qq.com/s/h0fUY5hvFs6zYzI_AxkOtw  
